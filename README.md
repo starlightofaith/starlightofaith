@@ -4,11 +4,11 @@
 
 ｡ﾟﾟ･｡･ﾟﾟ｡
 
-   ﾟ。crow ︿ 20yo ![](https://gifs.crd.co/assets/images/gallery24/04c04c59.gif?v=ef433a6f) **he**it ˖ ࣪ .  🦢 ࿐ ♡  osddsys ![](https://gifs.crd.co/assets/images/gallery23/a2c498af.gif?v=ef433a6f) 
+   ﾟ。navi ︿ 20yo ![](https://gifs.crd.co/assets/images/gallery24/04c04c59.gif?v=ef433a6f) **mi**rror ˖ ࣪ .  ♦️ ࿐ ♡  osddsys ![](https://gifs.crd.co/assets/images/gallery23/a2c498af.gif?v=ef433a6f) 
 
    　ﾟ･｡･
  
 
 ![](https://gifs.crd.co/assets/images/gallery22/fede8aac_original.gif?v=ef433a6f) જ⁀➴  **DNI** basic dni, -16, zionist, proshipper, discourse.
 
-![](https://gifs.crd.co/assets/images/gallery23/f6269d87.gif?v=ef433a6fhttps://gifs.crd.co/assets/images/gallery23/f6269d87.gif?v=ef433a6f) check links ! patreon has more pt info and sp has more private stuff. send gimmicks :3
+![](https://gifs.crd.co/assets/images/gallery23/f6269d87.gif?v=ef433a6fhttps://gifs.crd.co/assets/images/gallery23/f6269d87.gif?v=ef433a6f) check links ! patreon has more pt info and sp has more private stuff. 
