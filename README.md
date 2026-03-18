@@ -4,7 +4,7 @@
 
 ｡ﾟﾟ･｡･ﾟﾟ｡
 
-   ﾟ。navi ︿ 20yo ![](https://gifs.crd.co/assets/images/gallery24/04c04c59.gif?v=ef433a6f) **mi**rror ˖ ࣪ .  ♦️ ࿐ ♡  osddsys ![](https://gifs.crd.co/assets/images/gallery23/a2c498af.gif?v=ef433a6f) 
+   ﾟ。navi ︿ 21yo ![](https://gifs.crd.co/assets/images/gallery24/04c04c59.gif?v=ef433a6f) **he**they ˖ ࣪ .  ♦️ ࿐ ♡  osddsys ![](https://gifs.crd.co/assets/images/gallery23/a2c498af.gif?v=ef433a6f) 
 
    　ﾟ･｡･
  
