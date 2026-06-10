@@ -9,7 +9,8 @@
 <p align="center">
        <img width="500" src="https://64.media.tumblr.com/f06acb9b49d49aeb17080982645e4bae/0917b364e02aecb2-8b/s1280x1920/20067efbbf36a74cc44a4da7ce66262809aa84cc.pnj" alt="Material Bread logo">
 </p>
-<p algin="center">
+
+<p align="center">
 gabriel . 21 aroace. did system host
 no dni. check links.
 </p>
